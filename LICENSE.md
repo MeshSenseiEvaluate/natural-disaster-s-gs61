@@ -1,4 +1,4 @@
-# 
+# natural disaster survival premium Script is the best natural disaster survival Script, featuring esp and aimbot. Safe and powerful for all your needs.
 
 
 
